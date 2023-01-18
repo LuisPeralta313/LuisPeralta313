@@ -1,6 +1,7 @@
-- 👋 Hi, I’m @LuisPeralta313
-- 👀 I’m interested in ... Góticas, extranjeras y rubias 
-- 🌱 I’m currently learning ... cómo hablar con ellas
+- "Everything written here is mere entertainment"
+- 👋 Hi, I’m @LuisPeralta313 el Trismegisto, aún así,  < Soy hombre, y nada humano me es ajeno >
+- 👀 I’m interested in ... Ser consciente de las postrimerías, no volver a tocar el Río Leteo. 
+- 🌱 I’m currently learning ... Programar, Leer .. un bícefalo, una tesitura andante. 
 - 💞️ I’m looking to collaborate on ... drugs and shit
 - 📫 How to reach me ...
 
